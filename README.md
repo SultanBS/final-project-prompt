@@ -16,7 +16,7 @@ Woohoo!  It's time to show the world what we got!  We've spent 10 weeks honing o
 
 
 ## Prompt:
-The final project is all about freedom to apply these skills to make ANYTHING YOU WANT. Seriously...  ANYTHIHNG. And you can do these projects in groups of your chosing or on your own. This is exciting, but often times the freedom of choosing anything can lead to decision-making paralysis.
+The final project is all about freedom to apply these skills to make ANYTHING YOU WANT. Seriously...  ANYTHING. And you can do these projects in groups of your chosing or on your own. This is exciting, but often times the freedom of choosing anything can lead to decision-making paralysis.
 
 
 ## Things to Consider!
